@@ -1,12 +1,13 @@
 # SCORE-v3.1.1.6
 # Go This Site 👉 [Snapchat SCORE Booster](https://modren8.com/snapss)
-How to Boost Snapchat Score FAST 2024. Get 100k snap score in a day. Snapchat score hack UPDTAE Thursday, 29 August 2024
+How to Boost Snapchat Score FAST 2024. Get 100k snap score in a day. Snapchat score hack UPDTAE Friday, 30 August 2024
 
 
 **Last Update On:**
-- `29 August 2024, 12:03 AM `
+- `30 August 2024, 03:05 AM `
 
 **Old version:**
+- `29 August 2024, 12:03 AM `
 - `28 August 2024, 12:58 AM `
 - `26 August 2024, 02:15 AM `
 - `24 August 2024, 05:12 PM `
